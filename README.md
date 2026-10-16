@@ -34,4 +34,4 @@ Seeking an entry-level Business Analyst or Data Analyst opportunity where I can 
 
 ## 🤝 Connect With Me
 - **GitHub:** https://github.com/geethkiruthik-lab
-- **LinkedIn:** Add your LinkedIn profile URL here
+- **LinkedIn:** www.linkedin.com/in/geetha-murali-34401b3ba
